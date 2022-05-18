@@ -1,4 +1,4 @@
-Hi there wave
+Hi there 👋
 My name is Bhashitha Arambepola. I am a graduate of the Bsc In Inforrmation technology at rajarata University of Srilanka.
 
 I am skilled in ...
